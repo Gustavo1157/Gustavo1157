@@ -9,5 +9,7 @@ meu nome é Gustavo Borges
 ### você entrar em contato comigo 📫
 
 damazio.gustavo@escola.pr.gov.br
+
 @Gustavoborges.
-![](https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif-12794223972996305063)
+
+![](https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif)
