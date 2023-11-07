@@ -9,6 +9,5 @@ meu nome é Gustavo Borges
 ### você entrar em contato comigo 📫
 
 damazio.gustavo@escola.pr.gov.br
-
 @Gustavoborges.
-@Animes Brazil:Shinka No Mi
+https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif-12794223972996305063
