@@ -12,4 +12,4 @@ damazio.gustavo@escola.pr.gov.br
 
 @Gustavoborges.
 
-![](https://tenor.com/view/frustrated-upset-annoyed-stitch-ugh-gif)
+![](https://media.tenor.com/i7lltDaTPtUAAAAC/naruto.gif)
