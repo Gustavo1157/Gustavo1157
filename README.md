@@ -9,4 +9,6 @@ meu nome é Gustavo Borges
 ### você entrar em contato comigo 📫
 
 damazio.gustavo@escola.pr.gov.br
+
 @Gustavoborges.
+@Animes Brazil:Shinka No Mi
