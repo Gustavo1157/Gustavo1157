@@ -10,6 +10,6 @@ meu nome é Gustavo Borges
 
 damazio.gustavo@escola.pr.gov.br
 
-@Gustavoborges.
+@Gustavoborges
 
 ![](https://media.tenor.com/i7lltDaTPtUAAAAC/naruto.gif)
