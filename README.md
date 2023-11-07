@@ -1,10 +1,12 @@
-- 👋 Hi, I’m @Gustavo1157
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+###boas vindas ao meu perfil 💙
 
-<!---
-Gustavo1157/Gustavo1157 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+meu nome é Gustavo Borges
+
+- Estou estudando na Alura
+- Estou me desenvolvendo na linguagem javascript
+- Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+
+### você entrar em contato comigo 📫
+
+damazio.gustavo@escola.pr.gov.br
+@Gustavoborges.
