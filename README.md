@@ -12,4 +12,4 @@ damazio.gustavo@escola.pr.gov.br
 
 @Gustavoborges
 
-![](https://media.tenor.com/i7lltDaTPtUAAAAC/naruto.gif)
+https://media.tenor.com/3wen1lf5mK8AAAAC/dragon-ball-z-goku.gif
